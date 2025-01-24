@@ -9,6 +9,9 @@ Fisch Script mobile pc
 
 ![image](https://github.com/user-attachments/assets/1db49c8c-c609-434a-b634-67d2fed4f15f)
 
+![hq720](https://github.com/user-attachments/assets/6dd2d374-0489-48ef-96aa-26fe30c9f2cf)
+
+
 ---
 
 # Roblox Fisch Script
